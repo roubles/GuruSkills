@@ -1,1 +1,1 @@
-# GuruMath
+# Guru Skills
